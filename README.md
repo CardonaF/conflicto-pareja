@@ -1,3 +1,3 @@
 # conflicto-pareja
 
-- Mi comida favorita: No tengo idea.
+Me gustan mucho los espaguetis por que son facil de hacer y saben rico
